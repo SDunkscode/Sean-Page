@@ -1,7 +1,6 @@
-# Sean Dunkley
+# SDunkscode
 
-**Storrs, CT** | **203-767-8243** | **[sean.dunkley@uconn.edu](mailto:sean.dunkley@uconn.edu)** | **[linkedin.com/in/seandunkley](https://linkedin.com/in/seandunkley)**
-
+**Storrs, CT** | **203-767-8243** | **[sdunkscode@uconn.edu](mailto:sean.dunkley@uconn.edu)** |
 ---
 
 ## Education
